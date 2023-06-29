@@ -1,1 +1,1 @@
-My first readme
+I really love Ghana
